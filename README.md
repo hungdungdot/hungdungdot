@@ -12,7 +12,7 @@ fgd
 jk
 j
 pơ]\
-ol]
+o
 =
 o
 o
