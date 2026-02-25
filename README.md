@@ -12,5 +12,5 @@ fgd
 ioli
 kjlj
 jkluhji
-ukuo
+uku
 jlkioli
